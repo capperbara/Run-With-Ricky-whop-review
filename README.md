@@ -32,7 +32,8 @@ If you're considering joining, [check out Run With Ricky on Whop here](https://w
 
 ## What Is Run With Ricky on Whop?
 
-<img width="1526" height="731" alt="Run With Ricky Whop Group Review" src="https://github.com/user-attachments/assets/aea6e4b7-8c6a-4841-b60d-624095dabda0" />
+
+<img width="1488" height="750" alt="Run With Ricky Sports Group Whop Review" src="https://github.com/user-attachments/assets/c1bff87f-e5ee-4142-94e1-a2d851c24e48" />
   
 
 Run With Ricky is a premium sports betting community hosted on the Whop platform.
